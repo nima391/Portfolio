@@ -13,5 +13,4 @@ How to use:
 
 Main contact links:
 - Email: nimsith391@gmail.com
-- WhatsApp: +94 72 835 5116
 - YouTube: https://www.youtube.com/@MrNimaStreaming
